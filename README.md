@@ -1,2 +1,2 @@
-# Aashish15.github.io
+# aashisht.me
 WIP
